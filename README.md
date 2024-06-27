@@ -9,7 +9,7 @@ Featured on all three pages, the full responsive navigation bar includes links t
 This section will allow the user to easily navigate from page to page across all devices without having to revert back to the previous page via the ‘back’ button.
 
 The landing page image:
-The landing includes site intro and photographs to grab their attention. Also a youtube videos with hairstyles tutorials.
+The landing includes site intro and photographs to grab their attention. Also a youtube video with a hairstyles tutorial.
 This section introduces the user to Love Braiding with an short text.
 
 Features Left to Implement:
