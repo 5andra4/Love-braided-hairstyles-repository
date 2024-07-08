@@ -53,9 +53,9 @@ Deployment: The site was deployed to GitHub pages.
 
 Credits -
 
-Content: The text for the Home page was taken from Wikihow.com
+- Content: The text for the Home page was taken from Wikihow.com
 
-Media: The photos used on the home and sign up page are from: 
+- Media: The photos used on the home and sign up page are from: 
 
 https://www.cutegirlshairstyles.com/wp-content/uploads/2014/11/N0A8071.jpg 
 
