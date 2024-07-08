@@ -80,20 +80,25 @@ https://www.hairromance.com/wp-content/uploads/2013/04/Hair-Romance-Waterfall-Pl
 
 https://i.pinimg.com/736x/dd/3d/0b/dd3d0b55c77a12300581f9ec6999d4e0.jpg 
 
-For the "how to" linkpage were taken from: https://i.pinimg.com/736x/dd/3d/0b/dd3d0b55c77a12300581f9ec6999d4e0.jpg
+For the "how to" linkpage were taken from:
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTlnijsAusFmlAV2Jl9i-yBhTzkczYjtEFFSg&s
 
 
 The images used on the "fishtail braid" page: 
+
 https://missysue.com/wp-content/uploads/2016/06/fishtail-pigtail-braids-tutorial-7.png 
 
 https://jacquelynclark.com/wp-content/uploads/2016/11/fishtail-braid_1.jpg 
 
-For the "how to" linkpage were taken from: https://jacquelynclark.com/wp-content/uploads/2016/11/fishtail-braid_1.jpg
+For the "how to" linkpage were taken from:
+https://www.wikihow.com/images/thumb/4/4c/Make-a-Fishtail-Braid-Step-8-Version-9.jpg/550px-nowatermark-Make-a-Fishtail-Braid-Step-8-Version-9.jpg
 
 
-The images used on the "dutch braid" page: 
+The images used on the "dutch braid" page:
+
 https://i0.wp.com/therighthairstyles.com/wp-content/uploads/2021/04/1-single-dutch-braid-hairstyle-scaled.jpg?fit=1709%2C2560&ssl=1 
 
 https://mash-elle.com/wp-content/uploads/2016/10/IMG_2817-5.jpg 
 
 For the "how to" linkpage were taken from: https://mash-elle.com/wp-content/uploads/2016/10/IMG_2817-5.jpg
+https://www.wikihow.com/images/thumb/b/bd/Make-a-Dutch-Braid-Step-14-Version-3.jpg/550px-nowatermark-Make-a-Dutch-Braid-Step-14-Version-3.jpg
