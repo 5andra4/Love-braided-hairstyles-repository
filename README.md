@@ -100,5 +100,5 @@ https://i0.wp.com/therighthairstyles.com/wp-content/uploads/2021/04/1-single-dut
 
 https://mash-elle.com/wp-content/uploads/2016/10/IMG_2817-5.jpg 
 
-For the "how to" linkpage were taken from: https://mash-elle.com/wp-content/uploads/2016/10/IMG_2817-5.jpg
+For the "how to" linkpage were taken from:
 https://www.wikihow.com/images/thumb/b/bd/Make-a-Dutch-Braid-Step-14-Version-3.jpg/550px-nowatermark-Make-a-Dutch-Braid-Step-14-Version-3.jpg
